@@ -1,2 +1,2 @@
-# your-fake-noise-ep
-The first EP of EST (music)
+# Your Fake Noise
+EST's first album
